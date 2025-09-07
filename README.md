@@ -31,7 +31,7 @@ An aspiring **Data Analyst** from India, passionate about transforming raw data 
 ---
 
 ## 🌐 Connect With Me  
-- 💼 [LinkedIn](https://linkedin.com/in/tejasvikanse)  
+- 💼 [LinkedIn](www.linkedin.com/in/tejasvi-kanse-bb6268221)  
 - 📧 Email: **tejasvikanse08@gmail.com**  
 
 
